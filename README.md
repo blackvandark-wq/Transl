@@ -1,1 +1,1 @@
-# Transl.-
+# Transl
